@@ -1,4 +1,4 @@
-# Hi, I'm Hajar Haiou 👋
+# Hi, I'm HAJAR HAIOU 👋
 
 💻 **Aspiring Software Developer** from Morocco 🇲🇦
 
